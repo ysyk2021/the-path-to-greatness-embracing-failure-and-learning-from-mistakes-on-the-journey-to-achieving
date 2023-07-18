@@ -10,7 +10,6 @@ Whether you're a student, professional, or entrepreneur, The Path to Greatness p
 
 This book is essential reading for anyone looking to achieve their goals and make a positive impact on the world. With its focus on effective success strategies and personal development, The Path to Greatness is a must-read for anyone looking to unlock their full potential and live their best life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
