@@ -1,4 +1,4 @@
-Chapter: Building Confidence and Resilience
+Building Confidence and Resilience
 ===========================================
 
 In this chapter, we explore the importance of building confidence and resilience on the path to greatness. We delve into how embracing failure and learning from mistakes can be powerful tools for personal and professional growth. By understanding how to cultivate confidence and resilience, individuals can overcome obstacles, bounce back from setbacks, and achieve their goals with determination and self-belief.

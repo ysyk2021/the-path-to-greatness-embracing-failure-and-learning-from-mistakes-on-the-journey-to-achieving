@@ -1,4 +1,4 @@
-Chapter: Incorporating Failure into Future Planning
+Incorporating Failure into Future Planning
 ===================================================
 
 In this chapter, we explore the power of incorporating failure into future planning on the path to achieving greatness. We delve into the mindset shift required to embrace failure as an opportunity for growth and learning. By understanding how to effectively learn from mistakes, individuals can enhance their future planning and increase their chances of success.

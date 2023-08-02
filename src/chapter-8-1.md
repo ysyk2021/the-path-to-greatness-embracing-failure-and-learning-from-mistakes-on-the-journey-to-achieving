@@ -1,4 +1,4 @@
-Chapter: Giving Back and Contributing to Society
+Giving Back and Contributing to Society
 ================================================
 
 In this chapter, we explore the importance of giving back and contributing to society on the path to achieving greatness. We examine how acts of goodwill and social responsibility not only benefit others but also enhance personal growth and fulfillment.

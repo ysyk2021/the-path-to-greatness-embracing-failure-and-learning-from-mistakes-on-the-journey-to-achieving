@@ -1,4 +1,4 @@
-Chapter: Inspiring Others to Pursue Greatness
+Inspiring Others to Pursue Greatness
 =============================================
 
 In this chapter, we explore the importance of inspiring others to pursue greatness on the journey to achieving their goals. We delve into the mindset and strategies required to motivate and empower individuals to overcome obstacles, embrace failure, and learn from their mistakes.

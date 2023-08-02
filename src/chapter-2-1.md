@@ -1,4 +1,4 @@
-Chapter: Defining Your Purpose and Passion
+Defining Your Purpose and Passion
 ==========================================
 
 In this chapter, we explore the importance of defining your purpose and passion on the path to achieving greatness. We delve into strategies and techniques that can help individuals uncover their true purpose, align it with their passions, and pursue a fulfilling and meaningful journey towards their goals.

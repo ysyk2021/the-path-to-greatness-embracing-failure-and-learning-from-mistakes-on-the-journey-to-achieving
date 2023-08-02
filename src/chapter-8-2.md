@@ -1,4 +1,4 @@
-Chapter: Leading with Purpose and Vision
+Leading with Purpose and Vision
 ========================================
 
 In this chapter, we explore the importance of leading with purpose and vision on the journey to achieving your goals. We delve into the key elements of purpose-driven leadership and discuss strategies for developing and communicating a compelling vision.

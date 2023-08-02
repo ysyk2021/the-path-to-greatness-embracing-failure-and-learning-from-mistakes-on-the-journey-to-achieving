@@ -1,4 +1,4 @@
-Chapter: Finding Support and Encouragement
+Finding Support and Encouragement
 ==========================================
 
 In this chapter, we explore the importance of finding support and encouragement on the path to greatness. We delve into the significant role of a supportive network in overcoming challenges, staying motivated, and achieving goals. By understanding how to seek and nurture meaningful support systems, individuals can tap into a wellspring of strength and inspiration on their journey towards greatness.

@@ -1,4 +1,4 @@
-Chapter: Celebrating Small Wins Along the Way
+Celebrating Small Wins Along the Way
 =============================================
 
 In this chapter, we explore the importance of celebrating small wins on the path to greatness. We delve into why acknowledging and celebrating the small victories is essential for motivation, progress, and personal growth. By understanding the significance of celebrating small wins, individuals can stay motivated, build confidence, and maintain momentum on their journey towards achieving their goals.

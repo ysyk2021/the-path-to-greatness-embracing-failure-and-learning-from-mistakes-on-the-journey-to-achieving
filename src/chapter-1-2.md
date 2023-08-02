@@ -1,4 +1,4 @@
-Chapter: Defining Success and Greatness
+Defining Success and Greatness
 =======================================
 
 In this chapter, we explore the concept of success and greatness and delve into how individuals can define these terms for themselves. We discuss the importance of aligning personal values with one's definition of success and how greatness can be achieved through meaningful and fulfilling pursuits.
