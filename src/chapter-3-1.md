@@ -1,5 +1,3 @@
-Identifying Limiting Beliefs and Negative Self-Talk
-============================================================
 
 In this chapter, we explore the impact of limiting beliefs and negative self-talk on the path to greatness. We delve into how these ingrained patterns of thinking can hold us back from achieving our goals and offer strategies for recognizing and overcoming them.
 

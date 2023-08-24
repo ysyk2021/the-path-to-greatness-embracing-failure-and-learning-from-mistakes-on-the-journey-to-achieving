@@ -1,5 +1,3 @@
-Staying Motivated and Focused
-======================================
 
 In this chapter, we explore the importance of staying motivated and focused on the journey to achieving greatness. We delve into strategies and techniques that can help individuals maintain their drive, overcome obstacles, and stay committed to their goals.
 

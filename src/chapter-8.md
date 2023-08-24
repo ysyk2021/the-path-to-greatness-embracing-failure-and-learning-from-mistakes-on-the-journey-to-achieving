@@ -1,5 +1,3 @@
-Chapter 8: Making a Positive Impact
-===================================
 
 While personal success is important, it is equally important to use our success to make a positive impact on the world. Making a positive impact involves giving back to society and inspiring others to pursue greatness. In this chapter, we will explore techniques for making a positive impact.
 

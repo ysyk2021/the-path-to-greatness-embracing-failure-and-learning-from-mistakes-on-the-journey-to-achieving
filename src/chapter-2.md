@@ -1,5 +1,3 @@
-Chapter 2: Setting Goals and Intentions
-=======================================
 
 Setting goals and intentions is a crucial step towards achieving personal greatness. In this chapter, we will explore techniques for setting goals and intentions.
 

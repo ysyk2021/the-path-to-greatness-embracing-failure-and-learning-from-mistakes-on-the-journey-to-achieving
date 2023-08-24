@@ -1,5 +1,3 @@
-Chapter 6: Applying Lessons Learned
-===================================
 
 Learning from failure is only valuable if we apply the lessons we have learned to future endeavors. In this chapter, we will explore techniques for applying lessons learned.
 

@@ -1,5 +1,3 @@
-Chapter 7: Celebrating Successes
-================================
 
 As we journey on the path to greatness, it's important to take time to celebrate our successes. Celebrating successes not only recognizes our efforts and hard work but also provides motivation to continue striving towards our goals.
 

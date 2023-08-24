@@ -1,5 +1,3 @@
-Chapter 3: Overcoming Fear and Self-Doubt
-=========================================
 
 Fear and self-doubt can be significant obstacles to achieving personal greatness. In this chapter, we will explore techniques for overcoming fear and self-doubt.
 

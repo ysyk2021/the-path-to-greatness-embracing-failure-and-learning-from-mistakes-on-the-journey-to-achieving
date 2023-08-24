@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 The journey towards personal greatness is a transformative experience that requires growth, resilience, purpose, and impact. In this chapter, we will explore the power of the journey to greatness, defining success and greatness, and the benefits of embracing failure.
 
